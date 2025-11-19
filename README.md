@@ -1,0 +1,2 @@
+# 2025_2_PO_CAPSTONE_003D_GRUPO_1
+Proyecto Semestral Pepsico
